@@ -1,3 +1,3 @@
-Wil, Wilbur. He/him. adult. sigma male. has so many bitches. read my rentry. 
+Wil, Wilbur. He/him. adult. sigma male. i enjoy making rentrys.
 
-If I have you hidden on fucking horseville its for a reason, thanks
+
